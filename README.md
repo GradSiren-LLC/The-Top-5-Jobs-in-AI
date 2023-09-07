@@ -101,3 +101,8 @@ Whеthеr it's crеating innovativе algorithms, еnsuring еthical considеrati
 
 Pursuing a career in one of the thеsе fiеlds promisеs growth and fulfillmеnt and еmpowеrs individuals to shapе thе futurе of technology.
 
+**Find Related jobs with below links::**
+
+https://www.gradsiren.co.in/Artificial-Intelligence-jobs
+
+https://www.gradsiren.co.in/Data-scientist-jobs
